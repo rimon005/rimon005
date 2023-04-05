@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **asifiqbalrimon33@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cEVfMsZqusFPynRi0lQM6V2T15U24rJw/view?usp=share_link](https://drive.google.com/file/d/1cEVfMsZqusFPynRi0lQM6V2T15U24rJw/view?usp=share_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/1N80kHf-0nIbv_CNfV_H_UxR8xaYR8gpR/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
